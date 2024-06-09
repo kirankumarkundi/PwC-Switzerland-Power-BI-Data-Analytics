@@ -8,3 +8,11 @@
 
 ![image](https://github.com/kirankumarkundi/PwC-Switzerland-Power-BI-Data-Analytics/assets/172036105/98bb5af4-f56f-4891-9dcb-8306fb5c21b1)
 
+
+![Screenshot 2024-06-09 155328](https://github.com/kirankumarkundi/PwC-Switzerland-Power-BI-Data-Analytics/assets/172036105/51462b36-0088-46aa-93d8-a3985df48348)
+
+
+![Screenshot 2024-06-09 155425](https://github.com/kirankumarkundi/PwC-Switzerland-Power-BI-Data-Analytics/assets/172036105/83df5e9a-5e24-49c7-820e-4b1fd3bcafb6)
+
+
+
